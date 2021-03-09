@@ -1,3 +1,3 @@
 # stat
 ## prac class
-hi every one!
+hi everyone!
