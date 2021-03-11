@@ -6,9 +6,10 @@ hi everyone!
 * 응용통계학과 16학번
 * 대구 출신
 ## my favorite
-![MARU](
+![MARU](KakaoTalk_20210311_141244168.jpg)
 
-## paragraph
+
+## shape of my heart - sting
 > He deals the cards as a meditation And those he plays never suspect He doesn't play for the money he wins He don't play for respect
 >
 > He deals the cards to find the answer The sacred geometry of chance The hidden law of a probable outcome The numbers lead a dance
