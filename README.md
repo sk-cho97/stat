@@ -7,7 +7,13 @@
 * 대구 출신
 ## my favorite
 ![MARU](KakaoTalk_20210311_141244168.jpg)
-
+![MARU](KakaoTalk_20210311_141244168_01.jpg)
+![MARU](KakaoTalk_20210311_141244168_02.jpg)
+![MARU](KakaoTalk_20210311_141244168_03.jpg)
+![MARU](KakaoTalk_20210311_141244168_04.jpg)
+![MARU](KakaoTalk_20210311_141244168_05.jpg)
+![MARU](KakaoTalk_20210311_141244168_06.jpg)
+![MARU](KakaoTalk_20210311_141244168_07.jpg)
 
 ## shape of my heart - sting
 > He deals the cards as a meditation And those he plays never suspect He doesn't play for the money he wins He don't play for respect
